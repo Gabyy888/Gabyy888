@@ -36,9 +36,5 @@
 Si quieres compartir ideas o aprender juntos, ¡me encantaría saber de ti! 💬  
 💌 *Muy pronto pondré mis redes aquí 😉*
 
-へ     ♡   ╱|、
-      ૮  -   ՛ )      (`   -  7
-       /   ⁻  ៸|       |、⁻〵
- 乀 (ˍ, ل ل      じしˍ,)ノ
 ---
 
