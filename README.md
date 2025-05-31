@@ -26,9 +26,14 @@
 
 ## 📚 Actualmente aprendiendo⌒･*:.｡. .｡.:*･゜ﾟ･*☆
 
-- 🔄 Control de versiones con Git
-- 🤖 Lógica de programación
+- 🧱 Crear estructuras básicas en **HTML** para páginas web simples (｡•ᴗ•｡)♡  
+- 🛠️ Usar **Git** para llevar el control de versiones sin perderme (casi) nunca 
+- 🌸 Subir archivos y prácticas a **GitHub** como toda una dev en progreso (•̀ᴗ•́)و  
+- 🐍 Mejorar mi lógica con ejercicios en **Python** (aunque a veces me confunda jeje)  
+- 🗂️ Ser más organizada al programar (aunque mi escritorio no lo refleje (￣▽￣*)ゞ )  
 
+
+┏(＾0＾)┛ Aprendiendo pasito a pasito ┗(＾0＾) ┓
 ---
 
 (ᐢ˶• ༝ •˶ᐢ) ♡
