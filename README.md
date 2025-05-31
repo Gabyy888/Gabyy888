@@ -32,7 +32,6 @@
 - 🐍 Mejorar mi lógica con ejercicios en **Python** (aunque a veces me confunda jeje)  
 - 🗂️ Ser más organizada al programar (aunque mi escritorio no lo refleje (￣▽￣*)ゞ )  
 
-
 ┏(＾0＾)┛ Aprendiendo pasito a pasito ┗(＾0＾) ┓
 ---
 
