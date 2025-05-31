@@ -31,10 +31,8 @@
 
 ---
 
-## 📫 ¡Conectemos!
-
-Si quieres compartir ideas o aprender juntos, ¡me encantaría saber de ti! 💬  
-💌 *Muy pronto pondré mis redes aquí 😉*
+(ᐢ˶• ༝ •˶ᐢ) ♡
+୨୧ Gracias por pasar por aquí 🌼
 
 ---
 
